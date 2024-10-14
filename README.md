@@ -16,6 +16,6 @@ Bien que Prostalim XR soit composé d'ingrédients naturels, il est conseillé d
 **Conclusion**
 Prostalim XR constitue une option naturelle et efficace pour soutenir la santé de la prostate. Grâce à sa formulation riche en ingrédients bénéfiques, il aide à améliorer le confort urinaire et à maintenir une prostate saine. En l'intégrant dans un mode de vie sain et en l'achetant auprès de sources fiables, les hommes peuvent prendre des mesures significatives pour préserver leur santé prostatique et améliorer leur qualité de vie.
 
-![Prostalim XR]((https://www.histoire-costume.fr/prostalim-xr-biovancia-avis/))
+![Prostalim XR](https://www.histoire-costume.fr/prostalim-xr-biovancia-avis/)
 
 
